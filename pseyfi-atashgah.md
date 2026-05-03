@@ -4,14 +4,6 @@
 
 
 
-\*\*Full Name\*\* : \*Parham Seyfi Atashgah\* 
-
-\*\*Student id\*\* : \*\*117887257\*\*
-
-\*\* Seneca Email : pseyfi-atashgah@myseneca.ca
-
-
-
 
 
 ---
